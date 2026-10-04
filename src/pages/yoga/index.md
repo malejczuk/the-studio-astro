@@ -32,29 +32,13 @@ See the [studio website](https://adarshayoga.es/yoga/) or contact me directly fo
 
 ## My Path of Yoga
 
-In the summer of 2019, at the invitation of a friend, I began to attend a weekly yoga class.
-By the beginning of 2021, yoga had become my sole form of exercise.
-At this time, I was exclusively practicing with YouTube videos.
+In 2019, I started practicing yoga at Apple’s headquarters in California, at the invitation of a friend. By the beginning of 2021, yoga asana had become my only form of exercise.
 
-In 2022, I joined a studio for the first time, HAUM Studios in San Francisco.
-I quickly experienced big leaps in my practice.
-Several months after joining, I was looking once more for a way to deepen my practice.
-I signed up for the next teacher training offered at my studio.
+In 2022, I joined HAUM Studios in San Francisco. I experienced big leaps in my practice and was soon looking to go deeper. This led me to enroll in a 200-hour Hatha Vinyasa teacher training under Danni Pomplun and Yvonne Kingsley, co-founders of HAUM. The training was heart-opening — a profound paradigm shift after a life of operating from head-level. I completed the training in 2023. This became the catalyst for me leaving my engineering job in early 2024.
 
-I completed a **200-hour YTT in Hatha Vinyasa** in 2023 under my teachers Danni Pomplun and Yvonne Kingsley, co-founders of HAUM.
-For me, the training was heart-opening: a profound paradigm shift after a life of operating at a head-level.
-Importantly, I realized at an internal level that my engineering job was not right for me anymore, and, in early 2024, I left my job.
+My next adventure was a year of backpacking through Latin America. In 2025, I stumbled across Gabriel, a high example of Karma Yoga in the form of a hostel owner in the Colombian Andes. Recognizing him as a teacher, I spent one month of service at his hostel, Yambolombia. Next, I headed to the Amazon jungle, where I met another master teacher, la Madre Selva.
 
-Next began a year of backpacking around Latin America.
-In early 2025, I stumbled across a master of Karma Yoga in the Colombian Andes.
-His name was Gabriel, and he was the owner of the hostel where I was staying, Yambolombia.
-Recognizing him as a teacher, I soon returned to devote **one month to the practice of Karma Yoga**, with Gabriel as my teacher.
-Next, I headed to the Amazon jungle, where I spent a month cradled by _la Madre Selva_, another master teacher.
-
-In late 2025, I moved to Barcelona and began practicing **Mysore-style Hatha Ashtanga** under Aleix Griñó at Viveka Yoga Shala.
-From 2026-2027, I am completing **my second 200-hour teacher training**, also at Viveka.
-As of 2026, I began teaching regularly at Adarsha Yoga.
-In fall 2026, I completed my first 10-day Vipassana meditation retreat.
+In fall 2025, I moved to Barcelona and started practicing Mysore-style Hatha Yoga under Aleix Griñó. Since 2026, I’ve been teaching regularly at Adarsha Yoga. In fall 2026, I completed a 10-day Vipassana meditation retreat. I’m currently enrolled in my second 200-hour teacher training, at Viveka Yoga Shala with its co-founders, Aleix Griñó and Sebas Arbondo.
 
 </div>
 </div>
